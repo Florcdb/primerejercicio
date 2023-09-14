@@ -1,5 +1,1 @@
-casi eso voy a entregarte en propiedad a los orientales. Ellos montarán sus campamentos dentro de ti y allí pondrán sus
-tiendas de campaña. Comerán tu fruto y beberán tu leche.casique esto es lo que dice el Señor Soberano Jehová: ‘Diste 
-palmadas con las manosd y golpeaste el suelo con los pies, y te alegraste de la calamidad de la tierra de Israel con
-un desprecio enorme.  casi eso extenderé mi mano contra ti y te entregaré como botín a las naciones. Te eliminaré de
-entre los pueblos y te haré desaparecer de los países. Acabaré contigo; y tú tendrás que saber que yo soy Jehová’.
+
